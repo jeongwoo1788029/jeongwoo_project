@@ -1,2 +1,2 @@
-# To. Taehyun nim 
-## Cursor_project.cpp입니다!!!!
+# To. 태현님ㅁ 
+## 
